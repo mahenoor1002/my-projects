@@ -13,3 +13,7 @@ https://devendrabisaria.com/
 https://www.gbrubberproduct.com/
 
 https://n3atworks.com/newsite/
+
+https://www.mripl.net/
+
+https://ordazzle.com/
